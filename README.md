@@ -1,2 +1,2 @@
-# Zombie-Survivor-policy-
+# Zombie-Survivor-policy
 Privacy policy for Zombie Survivor
